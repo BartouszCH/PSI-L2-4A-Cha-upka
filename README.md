@@ -1,1 +1,1 @@
-# PSI-L2-4A-Chalupka
+# L2-4A-Chalupka
